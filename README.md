@@ -1,7 +1,5 @@
 ## Hi there 👋
 
-<!--
-
 - 🔭 I'm into homelabbing, but really poorly.
 - 🌱 I’m currently learning how to literally anything about that.
 - 🤔 I’m looking for help with most stuff.
