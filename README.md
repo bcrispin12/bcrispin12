@@ -5,6 +5,3 @@
 - 🤔 I’m looking for help with most stuff.
 
 - 📫 How to reach me: bcrispin4053@gmail.com
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
--->
